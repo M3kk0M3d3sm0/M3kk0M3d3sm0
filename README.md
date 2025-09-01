@@ -1,4 +1,4 @@
-- Hi, I’m @M3kk0M3d3sm0, i'am a programmer, if you're reading this is probably cz i messed up so badly I'am coming asking for help.
+- Hi, I’m @M3kk0M3d3sm0, i'am a programmer, but I only post silly stuff here :3 .
 - Love selfhosting.
 
 <!---
